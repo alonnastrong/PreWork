@@ -18,13 +18,20 @@ Time spent: Alonna spent 7 hours creating this
 App Brainstorming 🥸: 
 
 My favorite apps are 🥳 ...
+
 Instagram 📱 
+
 - Close friends
 - Stories
 - Reels
+
+
 Tiktok 📱
 - Reposts
 - Scroll System
+- Consistent Content Creators
+- Filters
+
 YouTube 💻
 - Video quality
 - Layout
