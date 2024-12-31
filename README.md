@@ -13,7 +13,7 @@ Submitted by: Alonna Strong
 
 About Alonna is an app all about Alonna
 
-Time spent: Alonna spent 5 hours creating this masterpie pie 🥧
+Time spent: Alonna spent 7 hours creating this 
 
 App Brainstorming 🥸: 
 
